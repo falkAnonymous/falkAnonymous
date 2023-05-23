@@ -1,4 +1,4 @@
-### Olá meu Nome é David e pretendo ser contratado por você entrevistador, pois sou muito bem capacitado👋
+### Olá meu Nome é David e pretendo ser contratado por você entrevistador ou olheiro, pois sou muito bem capacitado👋😎😂
 
 <!--
 **falkAnonymous/falkAnonymous** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
